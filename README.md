@@ -1,9 +1,9 @@
-# SMOKER MUSICX
+#
 
 ### Best Smart Voice Chat Music Bot For Telegram Groups ...
 
 
-<p align="center"><a href="https://t.me/sanki_owner"><img src="https://te.legra.ph/file/cb120c72f464ff25025a3.jpg"></a></p>
+<p align="center"><a href="https://t.mer"><img src="https://te.legra.ph/file/cb120c72f464ff25a3.jpg"></a></p>
 
 
 # ʜᴇʀoᴋᴜ ᴅᴇᴘʟᴏʏ
